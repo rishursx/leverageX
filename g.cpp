@@ -1,3 +1,12 @@
 ajsoildf
 erisjf
 wpiejsf4sj
+sjrdnv
+sjdf
+__STDC_HOSTED__sl
+__SIZEOF_PTRDIFF_T__so
+csji
+__cpp_sized_deallocationscp
+slcnr
+scjpr
+sprf
